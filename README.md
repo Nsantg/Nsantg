@@ -61,7 +61,7 @@
 
 <div align='center'>
 
-## <b> ¡Gracias por visitar mi perfil! 🚀</b>
+## <b> Thank you for visiting my profile! 🚀 </b>
 
 </div>
 <br>
